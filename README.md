@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bwash15 and I am a Software Engineer. The design and architect process of software is probably one of my favorites.  I am a father of 3
+- 👋 Hi, I’m @bwash15 and I am a Software Engineer. The design and architect process of software is my favorite part of the entire process. I am a father of 3
         amazing children; Austin, Morgan, and Ciera.  I was blessed with meeting my son at the age of 18, he was 3 at the time.  I was then blessed with
          my first daughter at 21 and youngest at 27.  Needless to say life took me down a path.  That path earned me a lot of life experience gained from
          working my way up from the bottom.  I had only started college when I met my son, so I had to work to earn my credentials.  And I did just that... 
